@@ -4,4 +4,4 @@
 - 34 years old
 - brown hair
 - brown eyes
-- tramp stamp
+- ankle tattoo
