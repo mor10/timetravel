@@ -4,4 +4,4 @@
 - 22 years old
 - blonde 
 - green eyes
-- face tattoo
+- two face tattoos
